@@ -1,0 +1,1 @@
+Paneer makhani (also knowns as Paneer butter masala) is a slightly sweet creamy dish of Paneer, in which the gravy is prepared usually with butter, tomatoes, cashews or cream. ... The origin of this dish was in the 1950s, when the Punjabis created this dish in Moti Mahal restaurant in Delhi
